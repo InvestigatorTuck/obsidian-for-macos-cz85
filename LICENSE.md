@@ -1,4 +1,4 @@
-
+Obsidian for macOS premium Script - cloud backup and note encryption is the best Obsidian for macOS script, featuring cloud backup and note encryption. Safe, efficient, and
 
 
 
